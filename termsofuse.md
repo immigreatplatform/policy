@@ -1,6 +1,6 @@
 ## Immigreat Terms of Use page
 
-By singing up for our app, you agree to the following:
+By signing up for our app, you agree to the following:
 
 ### Terms of Use
 
